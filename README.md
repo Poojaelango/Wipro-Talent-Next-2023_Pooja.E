@@ -1,1 +1,0 @@
-# Wipro-Talent-Next-2023_Pooja.E
